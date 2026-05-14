@@ -1,4 +1,4 @@
-#  
+#  new Tool for Todoist for macOS - collaboration and custom shortcuts offers the most advanced Todoist for macOS tool, with collaboration and custom shortcuts. Ideal for
 
 
 
